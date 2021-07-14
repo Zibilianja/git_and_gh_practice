@@ -1,0 +1,1 @@
+I love too many things. I play video games, I play golf, I fish, I bike, I make jewelry and hand crafted furniture. I literally cannot put them all here. Whenever I try to think of all my hobbies, I forget more than half of them... So, I've stopped trying. 
